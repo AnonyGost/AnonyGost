@@ -1,3 +1,3 @@
-### Hi 👋 World :earth:
+### Hi 👋 World 
 
 
